@@ -1,0 +1,2 @@
+# Froggies-Token
+We are the Collective Finance Community who have created a financial Ecosystem around our crypto currency Froggies Token. Our Vision is to harvest the numbers and strength of the Meme Communities and connect them through serious Partnerships with REAL Use Cases, where the Froggies Token will be used as a REAL Utility Token. The Froggies Token, will initially be integrated in two already established Communities within the world of arts and social sustainability
